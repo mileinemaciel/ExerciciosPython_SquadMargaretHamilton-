@@ -7,8 +7,8 @@
 # Exercicio 2 - Ana
 # Exercicio 3 - Priscila Nakayama
 # Exercicio 4 - Marcela 
-# Exercicio 5 - Priscila Nakayama
-# Exercicio 6 - 
+# Exercicio 5 - 
+# Exercicio 6 - Priscila Nakayama
 # Exercicio 7 - 
 # Exercicio 8 - 
 # Exercicio 9 - 
