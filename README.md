@@ -23,7 +23,7 @@
 ### Exercicio 6 - 
 ### Exercicio 7 - 
 ### Exercicio 8 - 
-### Exercicio 9 - 
+### Exercicio 9 - Priscila Nakayama
 ### Exercicio 10 - 
 
 ## Lista 3
