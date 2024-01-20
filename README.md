@@ -39,6 +39,6 @@
 ### Exercicio 1 - 
 ### Exercicio 2 - 
 ### Exercicio 3 - 
-### Exercicio 4 -  
+### Exercicio 4 -  Marcella Amazonas
 ### Exercicio 5 - Priscila Nakayama
 ### Exercicio 6 - 
